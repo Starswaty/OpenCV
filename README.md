@@ -1,7 +1,2 @@
 # OpenCV
 
-
-
-ffugg
-
-hfdbvvsvlnxg
